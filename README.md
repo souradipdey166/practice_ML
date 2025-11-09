@@ -1,3 +1,2 @@
 ### github is fun
-i am GOD
-
+Hi, everyone 
