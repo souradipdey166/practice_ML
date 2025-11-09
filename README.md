@@ -1,2 +1,2 @@
 ### github is fun
-Hi, everyone 
+Hi, everyone!
