@@ -1,2 +1,2 @@
 ### github is fun
-nothin just for fun
+nothing just for fun
